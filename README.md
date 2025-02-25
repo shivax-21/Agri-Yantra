@@ -1,2 +1,2 @@
-![Frame 8](https://github.com/H0ngJu/atti/assets/106425326/574cbb35-5e7f-4e26-b7d0-ef19bc3cdd39)
+![preview page](https://github.com/user-attachments/assets/cc4b3d92-8f4c-4c64-b7f4-b818498c5cdb)
 # Agri-Yantra
